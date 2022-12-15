@@ -1,1 +1,0 @@
-# soilihilaydi.github.io
